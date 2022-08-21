@@ -1,4 +1,4 @@
-**_CHOCOLATE SALTED CARAMEL TART_**
+**_CHOCOLATE SALTED CARAMEL TART_**.
 
 This 5 ingredient salted caramel tart is rocking and will leave you looking for more! 
 Caramel and chocolate, is there a better combination, we think not. We love this tart recipe so much that we 
